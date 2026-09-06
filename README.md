@@ -1,1 +1,1 @@
-# membuka-kunci-surat-al--ashr-dan-mim-sukun
+# membuka-kunci-surat-al-ashr-dan-mim-sukun
